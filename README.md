@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on open-source projects, innovative software solutions, and research in technology.
 - 📫 How to reach me: 
   - Email: [ahmadsyahrmdn@gmail.com](mailto:ahmadsyahrmdnn@gmail.com)
-  - LinkedIn: [Ahmad Syah Ramadhan]([https://linkedin.com/in/ahmadsyah](https://www.linkedin.com/in/ahmad-syah-ramadhan-0a88b2269/))
+  - LinkedIn: [Ahmad Syah Ramadhan](https://www.linkedin.com/in/ahmad-syah-ramadhan-0a88b2269/)
   - Instagram:[ahmad_syah2810](https://www.instagram.com/ahmad_syah2810/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love combining technology with creativity, and I'm fascinated by the intersection of art and programming.
